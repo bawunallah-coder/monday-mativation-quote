@@ -1,0 +1,1 @@
+# monday-mativation-quote
